@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @soNico85
+- 👀 I’m interested in "fessa"
+- 🌱 I’m currently learning C++ & java & python
+- 📫 How to reach me: dont try it
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: i hate lgbtq++ ulta full hd amoled
